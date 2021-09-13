@@ -1,4 +1,4 @@
-### Hi there 👋
+### Fala ai, beleza ?? Eu sou o Paulo, seja bem vindo! 👋
 
  <div>
   <a href="https://github.com/pademacena">
